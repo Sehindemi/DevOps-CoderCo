@@ -61,4 +61,4 @@ A rich, creamy, and delicious homemade cheesecake recipe!
 
 Enjoy your homemade cheesecake! 🍰😋  
 
-FOLLOW OUR INSTAGRAM
+PLEASE FOLLOW OUR INSTAGRAM
